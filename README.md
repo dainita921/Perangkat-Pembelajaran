@@ -1,2 +1,0 @@
-# Perangkat Pembelajaran
- RPP Jobsheet
